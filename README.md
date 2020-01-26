@@ -4,4 +4,14 @@
 
 1. I preferred to be called *Lewis*
 
+film
+1. I'm taking this class because *I'm very interested in gaining more knowledge about computers and am very excited for this class*
+
+1. My favorite movie is *Swingers*
+
+1. My favorite tv show is *My Hero Academia*
+
+1. My favorite YouTube channel is *Lyrical Lemonade*
+
 1. I'm taking this class because *I'm very interested in learning more about computers and am very excited to take this class*
+master

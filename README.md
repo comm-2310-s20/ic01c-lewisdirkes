@@ -1,13 +1,13 @@
 # Introduction to Me
 
-1. My name is ____________________
+1. My name is *Lewis Dirkes*
 
-1. I preferred to be called ______________________
+1. I preferred to be called *Lewis*
 
-1. I'm taking this class because _________________________
+1. I'm taking this class because *I am very interested in learning much more about computers and digital media and am very excited to take this class*
 
-1. My favorite videogame genre is __________________
+1. My favorite videogame genre is *Shooting and single player adventure games*
 
-1. My favorite videogame is ____________________
+1. My favorite videogame is *Rocket League and Super Smash Bros*
 
-1. My favorite pokemon or videogame character is _______________________
+1. My favorite pokemon or videogame character is *Groudon because I loved Pokemon Ruby back in the day*
